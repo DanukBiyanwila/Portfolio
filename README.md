@@ -61,5 +61,18 @@ Thank you for visiting my portfolio!
 
 ---
 
+![Screenshot 2024-10-16 225920](https://github.com/user-attachments/assets/500bfbb3-bb54-43f5-b37f-e2f6d5b52303)
+
+![Screenshot 2024-10-16 230004](https://github.com/user-attachments/assets/4a9f47d0-8c1e-41ff-900d-6244aed70954)
+
+![Screenshot 2024-10-16 230029](https://github.com/user-attachments/assets/2df25007-b149-4f75-8335-da07bc3c8124)
+
+![Screenshot 2024-10-16 230059](https://github.com/user-attachments/assets/de272397-37d5-4a65-b556-8f5033a877f2)
+
+![Screenshot 2024-10-16 230115](https://github.com/user-attachments/assets/116398c2-9d0a-4798-9256-9ff6ee4e70b2)
+
+![Screenshot 2024-10-16 230132](https://github.com/user-attachments/assets/7e8b5ce4-02fc-4e68-995d-4da0428e489f)
+
+![Screenshot 2024-10-16 230148](https://github.com/user-attachments/assets/4d909235-74a5-4334-b0e3-8d1db9371bf3)
 
 
